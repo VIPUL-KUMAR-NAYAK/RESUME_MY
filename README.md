@@ -8,7 +8,7 @@ I’m Vipul Kumar, a B.Tech Computer Science and Engineering student (graduating
 Vipul_Kumar_Resume.pdf – My latest resume
 
 📬 Contact
-Email: vipulkumarnayak@gmail.com
+Email: vipulkumarnayak855@gmail.com
 
 Phone: +91 6296014875
 
